@@ -1,2 +1,2 @@
-# rpg-
-se vienen cositat
+# rpg
+se vienen cositat :-)
