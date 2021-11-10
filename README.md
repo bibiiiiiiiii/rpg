@@ -1,2 +1,3 @@
 # rpg
-se vienen cositat :-)
+se vienen cositas :-)
+Ui las faltas
